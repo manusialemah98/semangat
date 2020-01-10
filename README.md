@@ -1,0 +1,2 @@
+# semangat
+Buat menambah wawasan
